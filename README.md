@@ -1,16 +1,17 @@
-## Hi there 👋
+## 70k and no one else.👋
+![Image](https://github.com/user-attachments/assets/01a6ef44-3bb9-4677-8e59-6b0b1cd0da8e)
 
-<!--
-**70k634/70k634** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+
+
+
+
+
+<!💍cyber ringed
+**70k/70k** 
+
+-  former cyberbully
