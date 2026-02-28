@@ -11,7 +11,7 @@
 
 
 
-<!💍cyber ringed
+<!💍cyber married
 **70k/70k** 
 
--  former cyberbully
+-  ex cyberbully
